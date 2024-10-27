@@ -13,7 +13,7 @@
 ![슬라이드13](https://github.com/user-attachments/assets/13fd1811-7971-43df-a174-96127a66bebf)
 ![슬라이드14](https://github.com/user-attachments/assets/fd85a213-ae18-432c-99d7-75bd0c1098c1)
 ![슬라이드15](https://github.com/user-attachments/assets/455f0dbd-fede-45e8-b86d-449afa95b921)
-![슬라이드16](https://github.com/user-attachments/assets/ae5c3806-7141-4de4-9b32-a9385948b595)
+![포트폴리오](https://github.com/user-attachments/assets/62bd8770-52a9-4db6-bfd7-532b95101c18)
 ![슬라이드17](https://github.com/user-attachments/assets/3cc13405-ec15-48c8-b5cd-d377bac49918)
 ![슬라이드18](https://github.com/user-attachments/assets/2b856917-1445-43b0-b1a8-89f88ebbe1ae)
 ![슬라이드19](https://github.com/user-attachments/assets/4263905b-afe4-4f24-a334-c6dd7e774d83)
